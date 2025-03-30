@@ -1,8 +1,8 @@
 Sikandar .2025.(𝐅𝚞𝐥𝐥𝐌𝐨𝚟𝐢𝐞) 𝐀𝐯𝐚𝚒𝐥𝐚𝐛𝐥𝐞 𝐃𝐨𝐰𝚗𝐥𝐨𝐚𝐝 𝐅𝐫𝚎𝐞 𝟕𝟸𝟎𝐩, 𝟒𝟾𝟎𝐩 & 𝟏𝟎𝟾𝟎𝐩 𝐇𝙳
 
-➤ ►➤ ►🌍📺📱👉 ["Sikandar" (2025) Ful𝚕 Mo𝚟ie](https://www.1024tera.com/wap/share/filelist?surl=mff03BHhLIXtewY9yAuFQw)
+➤ ►🌍📺📱👉 ["Sikandar" (2025) Ful𝚕 Mo𝚟ie](https://t.me/+MA-uEfvD0X42ZWE1)
 
-➤ ►🌍📺📱👉 ["Sikandar" (2025) Ful𝚕 Mo𝚟ie](https://www.1024tera.com/wap/share/filelist?surl=mff03BHhLIXtewY9yAuFQw)
+➤ ►🌍📺📱👉 ["Sikandar" (2025) Ful𝚕 Mo𝚟ie](https://t.me/+MA-uEfvD0X42ZWE1)
 
 About the Movie
 
